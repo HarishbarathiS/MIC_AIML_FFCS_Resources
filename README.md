@@ -1,1 +1,0 @@
-# MIC_AIML_FFCS_Resources
